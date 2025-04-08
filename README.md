@@ -1,23 +1,7 @@
-<p align="center">
-$\color{#ddc863}{\textbf{everybody talks by neon trees}}$
+<div align="center">
+![Image](https://github.com/user-attachments/assets/72a34e95-d2ae-4845-8cd1-adf9f061f5f9)
 
-<p align="center">
-$\color{#c17852}{\textbf{i hate them sm}}$
-
-<p align="center">
-<img src="foryou.png" alt="me and wife">
-
-<p align="center">
-$\color{#6db6a0}{\textbf{me}}$ $\color{#b8e0d4}{\textbf{and the}}$ $\color{#6e81ba}{\textbf{husband}}$
-
-<p align="center">
-<img src="foryouaswell.png" alt="me and wife">
-
-<p align="center">
-$\color{#c17852}{\textbf{my husband is so cute ..  !!!!}}$ 
-
-<p align="center">
-$\color{#ddc863}{\textbf{♪ "hey baby, won't you look my way? i can be your new addiction" ♫}}$
+welcome 2 hell week bitch
 
 
 <!---
