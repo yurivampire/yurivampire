@@ -10,6 +10,10 @@ all your life
 
 you were only waiting for this moment to arise
 
+![Image](https://github.com/user-attachments/assets/6079ab9e-62a7-4bbd-bfb7-72171af437b0)
+
+please let me go
+
 
 <!---
 yurivampire/yurivampire is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
