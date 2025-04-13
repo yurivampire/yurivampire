@@ -4,11 +4,9 @@
 
 blackbird singing in the dead of night
 
-take these broken wings and learn to fly
+take these broken wings and learn to fly 
 
-all your life
-
-you were only waiting for this moment to arise
+all your life , you were only waiting for this moment to arise
 
 ---------------------------------------------------------
 
