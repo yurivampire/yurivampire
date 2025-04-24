@@ -6,6 +6,8 @@
 
 ![Image](https://github.com/user-attachments/assets/3d763fbc-4334-4141-8199-e2827323cf73)
 
+art by @V4ND1LV on youtube or pinterest
+
 
 <!---
 yurivampire/yurivampire is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
