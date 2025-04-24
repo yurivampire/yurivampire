@@ -1,6 +1,6 @@
 <div align="center">
 
-"me and who" FYM ME AND WHO. ARE YOU INSA
+"me and who" FYM ME AND WHO. ARE YOU INSA (Sorry I mean i love shizumafu)
 
 ![Image](https://github.com/user-attachments/assets/93a04268-d8eb-44e8-8f0a-5bae844086a5)
 
