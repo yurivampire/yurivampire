@@ -1,12 +1,10 @@
 <div align="center">
 
-"me and who" FYM ME AND WHO. ARE YOU INSA (Sorry I mean i love shizumafu)
+literally my fav
 
-![Image](https://github.com/user-attachments/assets/93a04268-d8eb-44e8-8f0a-5bae844086a5)
+![Image](https://github.com/user-attachments/assets/9cb17e5a-2d95-4401-92b5-8c803f08e4f9)
 
-![Image](https://github.com/user-attachments/assets/3d763fbc-4334-4141-8199-e2827323cf73)
 
-art by @V4ND1LV on youtube or pinterest
 
 
 <!---
