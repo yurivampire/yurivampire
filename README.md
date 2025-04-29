@@ -1,9 +1,10 @@
 <div align="center">
 
-literally my fav
+heyy wyd when me and the gang pull up
 
-![Image](https://github.com/user-attachments/assets/9cb17e5a-2d95-4401-92b5-8c803f08e4f9)
+![Image](https://github.com/user-attachments/assets/7728f2dc-978e-4ee5-86cf-f671442efb78)
 
+you guys know who you are
 
 
 
