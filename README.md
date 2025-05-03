@@ -5,6 +5,8 @@
 when you tryna fight but the gng pull up
 
 
+![Image](https://github.com/user-attachments/assets/6961f942-2443-4a43-b907-e2348965d982)
+
 
 <!---
 yurivampire/yurivampire is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
