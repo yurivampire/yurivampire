@@ -9,6 +9,10 @@ when you tryna fight me but the gng pull up
 
 ![Image](https://github.com/user-attachments/assets/415be315-7dbd-4836-aeba-0baa7c0e13a5)
 
+<img src="Piss.jpg">
+
+Still them btw (Losers)
+ 
 
 <!---
 yurivampire/yurivampire is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
