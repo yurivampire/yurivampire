@@ -4,6 +4,8 @@
 
 [nagito](https://github.com/ChromaDrift) . [hajime](https://github.com/steIIarism) . [chiaki](https://github.com/yurivampire)
 
+all info abt me is on linktree
+
 
  
 
