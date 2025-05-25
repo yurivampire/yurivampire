@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="camera.png">
+<img src="camera2.png">
 
 [nagito](https://github.com/ChromaDrift) . [hajime](https://github.com/steIIarism) . [chiaki](https://github.com/yurivampire)
 
