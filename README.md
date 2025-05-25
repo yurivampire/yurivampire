@@ -4,11 +4,9 @@
 
 [nagito](https://github.com/ChromaDrift) . [hajime](https://github.com/steIIarism) . [chiaki](https://github.com/yurivampire)
 
-all info abt me is on linktree
+all info abt me is on linktree 
 
-[my masterpiece](https://www.youtube.com/watch?v=hHHgv91uV-M)
-
-
+eureka more like yurika
  
 
 <!---
