@@ -8,7 +8,7 @@ all info abt me is on linktree
 
 eureka more like yurika
 
-do not mess with siblings! i say as i grit my teeth in anger showing the dominance
+<img src="yesa.jpg">
  
 
 <!---
