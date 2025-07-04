@@ -8,7 +8,6 @@ all info abt me is on linktree
 
 eureka more like yurika
 
-<img src="tap.jpg">
  
 
 <!---
