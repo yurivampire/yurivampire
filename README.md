@@ -1,8 +1,10 @@
 <div align="center">
 
-<img src="camera2.png">
+<img src="siblings.png">
 
-[nagito](https://github.com/ChromaDrift) . [hajime](https://github.com/steIIarism) . [chiaki](https://github.com/yurivampire)
+[chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
+
+[yosuke plush](https://github.com/VERIFIEDreality) . [yu plush](https://github.com/steIIarism)
 
 all info abt me is on linktree 
 
