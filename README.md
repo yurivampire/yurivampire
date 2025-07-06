@@ -1,5 +1,7 @@
 <div align="center">
 
+when you tryna hate on me and my siblings but this is us
+
 <img src="siblingstwo.png">
 
 [chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
