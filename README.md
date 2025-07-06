@@ -2,7 +2,7 @@
 
 when you tryna hate on me and my siblings but this is us
 
-<img src="siblingstwo.png">
+<img src="sublungs.png">
 
 [chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
 
