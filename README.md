@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="siblings.png">
+<img src="siblingstwo.png">
 
 [chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
 
