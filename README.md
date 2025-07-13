@@ -1,16 +1,14 @@
 <div align="center">
 
-when you tryna hate on me and my siblings but this is us
-
 <img src="sublungs.png">
 
 [chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
 
 [yosuke plush](https://github.com/VERIFIEDreality) . [yu plush](https://github.com/steIIarism)
 
-all info abt me is on linktree 
+we are cute 
 
-eureka more like yurika
+![Image](https://github.com/user-attachments/assets/241ba618-1330-4549-8bce-5a0ed01e102c)
 
  
 
