@@ -8,6 +8,8 @@ CUTE
 
 [yosuke plush](https://github.com/unscathedd) . [yu plush](https://github.com/steIIarism)
 
+sanitycaptor on tiktok i know im a weirdo
+
 
  
 
