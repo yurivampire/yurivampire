@@ -6,7 +6,7 @@ CUTE
 
 [chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
 
-[yosuke plush](https://github.com/unscathedd) . [yu plush](https://github.com/steIIarism)
+[yosuke plush](https://github.com/verifiedreality) . [yu plush](https://github.com/steIIarism)
 
 
 
