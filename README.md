@@ -1,6 +1,6 @@
 <div align="center">
 
-CUTE
+well i quite enjoy the life you say im trapped in
 
 <img src="sublungs.png">
 
