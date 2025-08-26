@@ -1,8 +1,10 @@
 <div align="center">
 
-well i quite enjoy the life you say im trapped in
+$\color{#b488e3}{\textbf{bawat piyesa}}$
 
 <img src="MATTER.png">
+
+[ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/steIIarism)
 
 
 
