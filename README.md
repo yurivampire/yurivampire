@@ -2,11 +2,9 @@
 
 well i quite enjoy the life you say im trapped in
 
-<img src="sublungs.png">
+<img src="MATTER.png">
 
-[chie](https://github.com/yurivampire) . [yosuke](https://github.com/ChromaDrift) 
 
-[yosuke plush](https://github.com/verifiedreality) . [yu plush](https://github.com/steIIarism)
 
 
 
