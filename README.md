@@ -2,6 +2,8 @@
 
 $\color{#b488e3}{\textbf{bawat piyesa}}$
 
+$\color{#cea3da}{\textbf{DO NOT PLAY Until Then WHILE THIS SONG PLAYS please. I dide.}}$
+
 <img src="MATTER.png">
 
 [ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/steIIarism)
