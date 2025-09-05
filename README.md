@@ -2,7 +2,7 @@
 
 $\color{#b488e3}{\textbf{bawat piyesa}}$
 
-$\color{#cea3da}{\textbf{DO NOT PLAY Until Then WHILE THIS SONG PLAYS please. I dide.}}$
+$\color{#cea3da}{\textbf{Seth Thorne lowkey me in the future}}$
 
 <img src="MATTER.png">
 
