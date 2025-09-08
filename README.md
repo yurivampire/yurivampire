@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#b488e3}{\textbf{bawat piyesa}}$
+$\color{#b488e3}{\textbf{iris}}$
 
 $\color{#cea3da}{\textbf{when everything's made to be broken, i just want you to know who i am}}$
 
