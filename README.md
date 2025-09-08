@@ -2,7 +2,7 @@
 
 $\color{#b488e3}{\textbf{bawat piyesa}}$
 
-$\color{#cea3da}{\textbf{Seth Thorne lowkey me in the future}}$
+$\color{#cea3da}{\textbf{when everything's made to be broken, i just want you to know who i am}}$
 
 <img src="MATTER.png">
 
