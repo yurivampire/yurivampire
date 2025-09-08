@@ -1,12 +1,14 @@
 <div align="center">
 
-$\color{#b488e3}{\textbf{iris}}$
+$\color{#b488e3}{\textbf{the big goodbye}}$
 
-$\color{#cea3da}{\textbf{when everything's made to be broken, i just want you to know who i am}}$
+$\color{#cea3da}{\textbf{someone tell me why, why i'm all in my head?}}$
 
 <img src="MATTER.png">
 
 [ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/steIIarism)
+
+
 
 
 
