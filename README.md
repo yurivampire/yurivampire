@@ -10,7 +10,7 @@ $\color{#cea3da}{\textbf{i wish i was me, whoever that is}}$
 
 $\color{#ac91d8}{\textbf{i could just be, and not give a shit}}$
 
-$\color{#726db4}{\textbf{hey i'd be whatever makes you a fan}}$
+$\color{#726db4}{\textbf{hey, i'd be whatever makes you a fan}}$
 
 $\color{#58629e}{\textbf{'cause i don't know who the hell i am.}}$
 
