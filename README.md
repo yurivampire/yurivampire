@@ -6,6 +6,8 @@ $\color{#b488e3}{\textbf{maybe man}}$
 
 [ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/steIIarism)
 
+[>.<](https://linktr.ee/karinacchi)
+
 $\color{#cea3da}{\textbf{i wish i was me, whoever that is}}$
 
 $\color{#ac91d8}{\textbf{i could just be, and not give a shit}}$
