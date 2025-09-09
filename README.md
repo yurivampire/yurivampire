@@ -1,12 +1,18 @@
 <div align="center">
 
-$\color{#b488e3}{\textbf{the big goodbye}}$
-
-$\color{#cea3da}{\textbf{someone tell me why, why i'm all in my head?}}$
+$\color{#b488e3}{\textbf{maybe man}}$
 
 <img src="MATTER.png">
 
 [ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/steIIarism)
+
+$\color{#cea3da}{\textbf{i wish i was me, whoever that is}}$
+
+$\color{#ac91d8}{\textbf{i could just be, and not give a shit}}$
+
+$\color{#726db4}{\textbf{hey i'd be whatever makes you a fan}}$
+
+$\color{#58629e}{\textbf{'cause i don't know who the hell i am.}}$
 
 
 
