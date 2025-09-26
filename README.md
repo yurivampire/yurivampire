@@ -4,7 +4,7 @@ $\color{#b488e3}{\textbf{maybe man}}$
 
 <img src="MATTER.png">
 
-[ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/steIIarism)
+[ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/stellariism)
 
 [>.<](https://linktr.ee/karinacchi)
 
