@@ -1,22 +1,14 @@
 <div align="center">
 
-$\color{#b488e3}{\textbf{maybe man}}$
+$\color{#b53535}{\textbf{freaky just got fabulous?}}$
 
-<img src="MATTER.png">
+<img src="sandwicj.png">
 
-[ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/stellariism)
+[sam](https://github.com/ChromaDrift) . [celina](https://github.com/verifiedreality) . [kris](https://github.com/yurivampire) . [colby](https://github.com/stellariism)
 
-[>.<](https://linktr.ee/karinacchi) [?](https://youtu.be/Wvj_DuV1sbQ?si=vh3nnXGHvUDhI7xa)
+$\color{#672020}{\textbf{new readme because its hellweek}}$
 
-$\color{#cea3da}{\textbf{i wish i was me, whoever that is}}$
-
-$\color{#ac91d8}{\textbf{i could just be, and not give a shit}}$
-
-$\color{#726db4}{\textbf{hey, i'd be whatever makes you a fan}}$
-
-$\color{#58629e}{\textbf{'cause i don't know who the hell i am.}}$
-
-
+[0_0](https://linktr.ee/karinacchi) [?](https://youtu.be/Wvj_DuV1sbQ?si=vh3nnXGHvUDhI7xa)
 
 
 
