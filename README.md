@@ -8,7 +8,7 @@ $\color{#b53535}{\textbf{freaky just got fabulous?}}$
 
 $\color{#672020}{\textbf{new readme because its hellweek}}$
 
-[0_0](https://linktr.ee/karinacchi) [?](https://youtu.be/Wvj_DuV1sbQ?si=vh3nnXGHvUDhI7xa)
+[0_0](https://linktr.ee/karinacchi) [?](https://youtu.be/Wvj_DuV1sbQ?si=vh3nnXGHvUDhI7xa) [^_^](https://youtu.be/ybyPB9x8HXc?si=XmdUxSP6xhMOjFoA)
 
 
 
