@@ -6,7 +6,7 @@ $\color{#b488e3}{\textbf{maybe man}}$
 
 [ganji](https://github.com/ChromaDrift) . [eli](https://github.com/verifiedreality) . [tracy](https://github.com/yurivampire) . [aesop](https://github.com/stellariism)
 
-[>.<](https://linktr.ee/karinacchi)
+[>.<](https://linktr.ee/karinacchi) [?](https://youtu.be/Wvj_DuV1sbQ?si=vh3nnXGHvUDhI7xa)
 
 $\color{#cea3da}{\textbf{i wish i was me, whoever that is}}$
 
