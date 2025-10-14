@@ -1,12 +1,14 @@
 <div align="center">
 
-$\color{#b53535}{\textbf{freaky just got fabulous?}}$
+$\color{#f2d4dd}{\textbf{have I been able to change even a little bit since then?}}$
 
-<img src="sandwicj.png">
+<img src="heartiful.png">
 
-[sam](https://github.com/ChromaDrift) . [celina](https://github.com/verifiedreality) . [kris](https://github.com/yurivampire) . [colby](https://github.com/stellariism)
+[akito](https://github.com/ChromaDrift) . [kohane](https://github.com/verifiedreality) . [an](https://github.com/yurivampire) . [toya](https://github.com/stellariism)
 
-$\color{#672020}{\textbf{new readme because its hellweek}}$
+$\color{#b7e0e5}{\textbf{miserable as we were, we came together and mixed into a shining light}}$
+
+$\color{#efddbb}{\textbf{how could that be, even though we're so weak?}}$
 
 [0_0](https://linktr.ee/karinacchi) [?](https://youtu.be/Wvj_DuV1sbQ?si=vh3nnXGHvUDhI7xa) [^_^](https://youtu.be/ybyPB9x8HXc?si=XmdUxSP6xhMOjFoA)
 
