@@ -2,7 +2,7 @@
 
 <img src="heartiful.png">
 
-< [akito](https://github.com/ChromaDrift) . [kohane](https://github.com/verifiedreality) . [an](https://github.com/yurivampire) . [toya](https://github.com/stellariism) 3
+[akito](https://github.com/ChromaDrift) . [kohane](https://github.com/verifiedreality) . [an](https://github.com/yurivampire) . [toya](https://github.com/stellariism)
 
 
 [CUTE FAT TREE](https://linktr.ee/karinacchi) 
