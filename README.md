@@ -8,10 +8,6 @@
 [CUTE FAT TREE](https://linktr.ee/karinacchi) 
 
 
-$\color{#cea3da}{\textbf{da friend Links click to view yes they are so few goddamn it}}$
-
-
-
 
 
  
