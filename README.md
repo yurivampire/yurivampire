@@ -9,6 +9,13 @@ togetha we are a big fhat burger patty
 
 [ma cute tree](https://linktr.ee/karinacchi) 
 
+---------
+
+<div align=left>
+
+WHO SAID THIS BOY am blushing
+
+67 /208] whispers: id hit
 
 
  
