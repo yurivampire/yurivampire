@@ -4,7 +4,7 @@ togetha we are a big fhat burger patty
 
 <img src="secondbigbadboys.png">
 
-[FREAKster](https://github.com/ChromaDrift) [the bebe](https://github.com/verifiedreality) [a queen](https://github.com/yurivampire) [yaoi NERD](https://github.com/stellariism)
+[hot man FREAKster](https://github.com/ChromaDrift) [the bebe](https://github.com/verifiedreality) [a queen](https://github.com/yurivampire) [yaoi NERD](https://github.com/stellariism)
 
 
 [ma cute tree](https://linktr.ee/karinacchi) 
