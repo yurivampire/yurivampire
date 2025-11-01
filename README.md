@@ -1,15 +1,13 @@
-<div align="center">
+<div align=center>
 
-<img src="heartiful.png">
+togetha we are a big fhat burger patty
 
-[akito](https://github.com/ChromaDrift) . [kohane](https://github.com/verifiedreality) . [an](https://github.com/yurivampire) . [toya](https://github.com/stellariism)
+<img src="secondbigbadboys.png">
+
+[FREAKster](https://github.com/ChromaDrift) [the bebe](https://github.com/verifiedreality) [a queen](https://github.com/yurivampire) [NERD](https://github.com/stellariism)
 
 
-[CUTE FAT TREE](https://linktr.ee/karinacchi) 
-
-------------
-
-read hgd / horror game dveeloper .. . . . guys 🤑🤑🤑
+[ma cute tree](https://linktr.ee/karinacchi) 
 
 
 
