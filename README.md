@@ -10,7 +10,7 @@ WHO SAID THIS? ??? Boy What are we ? hmmmm hmm
 
 <div align=center>
 
-diz us guys?
+diz us guys? DA [GROUP](https://rentry.co/zycalderaeta) RENTRY
 
 <img src="ere.png">
 
