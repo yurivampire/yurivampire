@@ -1,13 +1,16 @@
 <div align=center>
 
+diz us guys?
+
+<img src="ere.png">
+
+[the bebe](https://github.com/verifiedreality) [yaoi NERD](https://github.com/stellariism) [guyFREAK for hot men Ewww](https://github.com/ChromaDrift) [a queen(ME)](https://github.com/yurivampire) 
+
+[ma cute tree](https://linktr.ee/karinacchi) 
+
 togetha we are a big fhat burger patty
 
 <img src="secondbigbadboys.png">
-
-[FREAK for hot men Ewww](https://github.com/ChromaDrift) [the bebe](https://github.com/verifiedreality) [a queen](https://github.com/yurivampire) [yaoi NERD](https://github.com/stellariism)
-
-
-[ma cute tree](https://linktr.ee/karinacchi) 
 
 ---------
 
