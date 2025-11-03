@@ -1,3 +1,13 @@
+---------
+
+<div align=left>
+
+WHO SAID THIS? ??? Boy What are we ? hmmmm hmm
+
+67 /208] whispers: id hit
+
+------------
+
 <div align=center>
 
 diz us guys?
@@ -11,14 +21,6 @@ diz us guys?
 togetha we are a big fhat burger patty
 
 <img src="secondbigbadboys.png">
-
----------
-
-<div align=left>
-
-WHO SAID THIS? ??? Boy What are we ? hmmmm hmm
-
-67 /208] whispers: id hit
 
 
  
