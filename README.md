@@ -12,15 +12,13 @@ WHO SAID THIS? ??? Boy What are we ? hmmmm hmm
 
 diz us guys? DA [GROUP](https://rentry.co/zycalderaeta) RENTRY
 
-<img src="ere.png">
+<img src="secondbigbadboys.png">
 
 [the bebe](https://github.com/verifiedreality) [yaoi NERD](https://github.com/stellariism) [guyFREAK for hot men Ewww](https://github.com/ChromaDrift) [a queen(ME)](https://github.com/yurivampire) 
 
 [ma cute tree](https://linktr.ee/karinacchi) 
 
 togetha we are a big fhat burger patty
-
-<img src="secondbigbadboys.png">
 
 
  
