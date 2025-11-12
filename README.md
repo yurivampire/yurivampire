@@ -22,7 +22,7 @@ togetha we are a big fhat burger patty
 
 ------------
 
-since its about our brother ... SPREAD THE WORD [read](https://rentry.co/t8bmgnxp) + credits to @V1NCENSE on gh
+SPREAD THE WORD [read](https://rentry.co/t8bmgnxp) + credits to @V1NCENSE on gh . you guys are DISGUSTING
  
 
 <!---
