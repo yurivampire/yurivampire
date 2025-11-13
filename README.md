@@ -4,7 +4,7 @@ diz us guys? DA [GROUP](https://rentry.co/zycalderaeta) RENTRY
 
 <img src="ere.png">
 
-[the bebe](https://github.com/verifiedreality) [yaoi NERD](https://github.com/stellariism) [FREAK for hot men Ewww](https://github.com/ChromaDrift) [a queen(ME)](https://github.com/yurivampire) 
+[the bebe](https://github.com/verifiedreality) [yaoi NERD](https://github.com/stellariism) [guyFREAK for hot men Ewww](https://github.com/ChromaDrift) [a queen(ME)](https://github.com/yurivampire) 
 
 [ma cute tree](https://linktr.ee/karinacchi) 
 
