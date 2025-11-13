@@ -1,6 +1,6 @@
 <div align=center>
 
-[wentwy](https://rentry.co/zycalderaeta)
+diz us guys!! group [wentwy](https://rentry.co/zycalderaeta)
 
 <img src="ere.png">
 
