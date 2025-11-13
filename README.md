@@ -1,13 +1,3 @@
----------
-
-<div align=left>
-
-WHO SAID THIS? ??? Boy What are we ? hmmmm hmm
-
-67 /208] whispers: id hit
-
-------------
-
 <div align=center>
 
 diz us guys? DA [GROUP](https://rentry.co/zycalderaeta) RENTRY
