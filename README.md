@@ -1,14 +1,12 @@
 <div align=center>
 
-diz us guys!! group [wentwy](https://rentry.co/zycalderaeta)
+cant touch dat group [wentwy](https://rentry.co/zycalderaeta)
 
-<img src="ere.png">
+<img src="touxh.png">
 
-[the bebe](https://github.com/verifiedreality) [yaoi NERD](https://github.com/stellariism) [guyFREAK for hot men Ewww](https://github.com/ChromaDrift) [a queen(ME)](https://github.com/yurivampire) 
+ [the nerd](https://github.com/stellariism) [the guyfreak](https://github.com/ChromaDrift) [the bebe](https://github.com/verifiedreality) [yurimaster](https://github.com/yurivampire) 
 
 [ma cute tree](https://linktr.ee/karinacchi) 
-
-togetha we are a big fhat burger patty
 
  
 
