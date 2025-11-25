@@ -8,6 +8,10 @@ cant touch dat group [wentwy](https://rentry.co/zycalderaeta)
 
 [ma cute tree](https://linktr.ee/karinacchi) 
 
+------------
+
+DONT DRAG ME TO DRAMA you DRAMALORDS
+
  
 
 <!---
